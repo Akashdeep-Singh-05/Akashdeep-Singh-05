@@ -6,6 +6,8 @@
 - 🌱 I’m currently learning **Python, courses etc.**
 
 - 📫 How to reach me **haripura40@gmail.com**
+  
+📫 How to reach me **https://wwww.instagram.com/akashdeep_singh_05?igsh=YnFyeGZxcjhtcHc1**
 
 - ⚡ Fun fact **I am funny**
 
